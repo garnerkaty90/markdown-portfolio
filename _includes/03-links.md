@@ -1,1 +1,1 @@
-https://github.com/garnerkaty90
+[Github Profile](https://github.com/garnerkaty90)
